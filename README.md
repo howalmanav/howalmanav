@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @howalmanav
 - 👀 I’m interested in ...cosmos space new theory inventions
 - 🌱 I’m currently learning ...THEORATICAL PHYSICS
-- 💞️ I’m looking to collaborate on ...space research channels and small level
+- 💞️ I’m looking to collaborate on ...space research channels on small level
 - 📫 How to reach me ...howalmanav18@gmail.com
 
 <!---
